@@ -15,3 +15,5 @@ Well I do, so here's some ✧˖° <ins>*Fun Facts about Cats*</ins> ✧˖° :
 Hope you enjoyed those cat facts, I know I did. /ᐠ o ˕ oマ 
 
 My stats lecturer used a link that brought me much joy as it presents you a random photo of a cat everytime you refresh it, so I will now share the joy of [many cats](https://cataas.com/cat). =^. ̫.^=
+
+![cat](https://i.pinimg.com/originals/98/68/96/98689664789a25ade8a6a501aa240137.jpg)
