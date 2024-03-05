@@ -2,7 +2,7 @@
 This was made with the purpose of a practice repo as I start learning and using Markdown. I practiced using Markdown syntax within this repo and just for fun, I have decided to dedicate it to cats 🐈
 
 First, here are some things about me:
-- My name is Jessica Zhu
+- My name is Jessica 
 - I am a student studying Data Science at the University of Auckland
 
 ## Welcome!
