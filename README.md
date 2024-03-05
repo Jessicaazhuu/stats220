@@ -8,7 +8,7 @@ First, here are some things about me:
 ## Welcome!
 Do you like cats? ≽^- ˕ -^≼ 
 
-Well I do, so here's 5 ✧˖° <ins>*Fun Facts about Cats*</ins> ✧˖° :
+Well I do, so here's ✧˖° <ins>*5 Fun Facts about Cats*</ins> ✧˖° :
 1. Cats spend around 1/3 of their lives sleeping, usually sleeping around 12 - 20 hours in a day. Must be nice...
 2. Like how most humans have a dominant hand, cats can also have a dominant front paw. Studies have shown that male cats tend to have a dominant left paw, while female cats tend to have a dominant right paw.
 3. Cats have 32 muscles in each ear, which allows their ears to move separately, turn 180 degrees and detect where a specific sound is coming from.
