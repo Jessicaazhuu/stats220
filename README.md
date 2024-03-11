@@ -18,6 +18,8 @@ Well I do, so here's ✧˖° <ins>*5 Fun Facts about Cats*</ins> ✧˖° :
 **Woo!** 
 Hope you enjoyed those cat facts, I know I did. /ᐠ o ˕ oマ 
 
-My stats lecturer used a link that brought me much joy as it presents you a random photo of a cat everytime you refresh it, so I will now share the joy of [many cats](https://cataas.com/cat). =^. ̫.^=
+My stats lecturer used a site that brought me much joy as it presents a random photo of a cat everytime it's refresh it, so I will now share the joy of [cats](https://cataas.com/cat). =^. ̫.^= 
+
+And for people who like dogs, here's a page that functions the same but provides you with a random photo or video of a dog instead, so now you can also have the joy of seeing many [doggos](https://random.dog/).૮ •ﻌ•ა
 
 ![cat](https://i.pinimg.com/originals/98/68/96/98689664789a25ade8a6a501aa240137.jpg)
