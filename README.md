@@ -3,12 +3,13 @@ This was made with the purpose of being a test repo as I start learning and usin
 
 First, here are some things about me:
 - My name is Jessica 
-- I am a student studying Data Science at the University of Auckland
+- I am currently a student studying Data Science at the University of Auckland
+- I have a dog and a cat and I love them both
 
 ## Welcome!
-Do you like cats? ≽^- ˕ -^≼ 
+Do you also like cats? ≽^- ˕ -^≼ 
 
-Well I do, so here's ✧˖° <ins>*5 Fun Facts about Cats*</ins> ✧˖° :
+Here's ✧˖° <ins>*5 Fun Facts about Cats*</ins> ✧˖° :
 1. Cats spend around 1/3 of their lives sleeping, usually sleeping around 12 - 20 hours in a day. Must be nice...
 2. Like how most humans have a dominant hand, cats can also have a dominant front paw. Studies have shown that male cats tend to have a dominant left paw, while female cats tend to have a dominant right paw.
 3. Cats have 32 muscles in each ear, which allows their ears to move separately, turn 180 degrees and detect where a specific sound is coming from.
